@@ -1,4 +1,4 @@
-# ¡Hola! Soy [Tu Nombre Completo] 👋
+# ¡Hola! Soy Aimer de jesus Ospino Egea 👋
 
 ### 🏛️ Información Institucional
 - **Universidad:** Universidad de la Costa
